@@ -1,1 +1,1 @@
-Sur ce blog, vous pourrez retrouver mon site web personnel
+On this blog you can find my personal website !
